@@ -1,1 +1,0 @@
-# nadyafarchanafidaroina.github.io
