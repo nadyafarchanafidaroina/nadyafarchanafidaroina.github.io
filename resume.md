@@ -22,8 +22,8 @@ Jul 2010 - Jun 2013
 ### **Keahlian**
 
    - Menulis
-    - Berbicara di depan publik
-    - Jaringan komputer
+   - Berbicara di depan publik
+   - Jaringan komputer
 
 ### **Hobi**
 
