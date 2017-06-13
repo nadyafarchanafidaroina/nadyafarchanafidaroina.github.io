@@ -5,15 +5,12 @@ Mahasiswa Ilmu Komputer IPB\
 +62 897-6692-341\
 na.farchana@gmail.com*
 ### **Pendidikan**
-
-#### **Institut Pertanian Bogor — SKomp**
-
+#### **Institut Pertanian Bogor — *SKomp***
 Agustus 2016 – 2020
 #### **SMA Negeri 1 Banjarnegara**
+Jul 2013 – Jun 2016
 
-Jul 2013 – Jun 2016\
-**Mts Negeri 1 Banjarnegara**
-
+**Mts Negeri 1 Banjarnegara**\
 Jul 2010 - Jun 2013
 ### **Pelatihan**
 
